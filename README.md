@@ -1,0 +1,1 @@
+# obrezka_photo
